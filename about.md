@@ -22,7 +22,9 @@ Matt favors drawing techniques. When he does use paint, it is applied from tubes
 
 He uses digital tools too.
 
+Matt believes in the stakeholder approach to business and art. Even if you don't buy, or know know his name, he wants you to benefit.
 
+Okay enough of that 3rd person stuff. Much love, friend!
 
 ### Contact me
 
