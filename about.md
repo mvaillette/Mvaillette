@@ -8,7 +8,7 @@ published: true
 
 Right now Matt's life is in flux. He is homeless and speaking in third person. He has no sizable work space or computer.
 
-So he focuses on his sketchbook and art as therapy.
+So he focuses on his sketchbook and art-as therapy.
 
 ### Bigger Picture of Matt
 
