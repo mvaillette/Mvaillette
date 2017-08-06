@@ -18,6 +18,12 @@ He is creative because he had to be. Matt favors improvisation. He keeps ahit ra
 
 And he works with blazing speed!
 
+Matt favors drawing techniques. When he does use paint, it is applied from tubes or bottles and mixed on canvas... And often used with drawing media. 
+
+He uses digital tools too.
+
+
+
 ### Contact me
 
 [Mvaillette@gmail.com](mailto:mvaillette@gmail.com)
