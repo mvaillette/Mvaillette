@@ -1,4 +1,8 @@
-Everything has Function-Meaning-Aesthetic.
+---
+published: true
+---
+
+Everything has function and meaning.
 
 ![glitch photo of a piece of string]({{site.baseurl}}/images/2017-8-6-glitch-string-belt.jpg)
 
