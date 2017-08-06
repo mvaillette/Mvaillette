@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 ---
 I’m an artist. I’m homeless. Art saves me. This blog is for my sanity.
 
