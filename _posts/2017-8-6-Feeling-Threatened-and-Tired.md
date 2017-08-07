@@ -1,3 +1,7 @@
+---
+published: true
+---
+
 Tuckered out. 7pm. Listening to a haunting piece of music: “Ghosts I” by NIN.
 
 ![]({{site.baseurl}}/images/2017-8-6-glitch-pain-poem-1.jpg)
